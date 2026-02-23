@@ -1,7 +1,9 @@
 # Information
 
 • Artist — Check out my drawings on X/Twitter!
+
 • Rarely goes on ponytown now since I'm too scared to int with people.
+
 • Socials:
 - Twt = probablydumbess
 - YT = ProbablyADumbess
