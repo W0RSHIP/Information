@@ -1,9 +1,10 @@
 # Information
 
-Many names!
-Jian, Yeon, John, Sean, Mikhael and Gabriel
+• Artist — Check out my drawings on X/Twitter!
+• Rarely goes on ponytown now since I'm too scared to int with people.
+• Socials:
+- Twt = probablydumbess
+- YT = ProbablyADumbess
 
-!Minor! Going to young adult soon though.
-18+ People please interact with cautious, I'm still a minor. ^^
-
-I draw, not posting it on my Twitter because I'm not actively open it.
+IWC always, but I'm free to int! I don't bite :∆
+Cuddle / Hugs freely ( people rarely do this ) I don't bite gng! :∆
