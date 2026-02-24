@@ -1,7 +1,7 @@
 <div align="center">
 
 <!-- Animated Header -->
-<img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=26&pause=900&color=38BDF8&center=true&vCenter=true&width=700&lines=Hey+there+👋;I'm+ProbablyADumbess;Digital+Artist+🎨;IWC+Always;Free+to+Interact+🤝" />
+<img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=26&pause=900&color=38BDF8&center=true&vCenter=true&width=700&lines=Hey+there+👋;I'm+Ivan;Digital+Artist+🎨;IWC+Always;Free+to+Interact+🤝" />
 
 <br><br>
 
